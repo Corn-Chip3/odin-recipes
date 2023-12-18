@@ -1,0 +1,1 @@
+IDEK what the current project is, let alone what skills i will have demostrated
